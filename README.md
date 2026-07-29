@@ -34,7 +34,7 @@
 
 [超悦机场官网注册入口](https://www.chaoyue.shop/#/register?code=IFP5Hc3D)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
 
@@ -416,7 +416,7 @@ Hysteria 是一种基于现代网络传输优化设计的协议方案，在部�
 
 [超悦机场官方注册入口](https://www.chaoyue.shop/#/register?code=IFP5Hc3D)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 使用提示：
 
