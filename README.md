@@ -32,9 +32,9 @@
 
 超悦机场注册入口：
 
-[超悦机场官网注册入口](https://a.wwaann.com/?s=chaoyue)
+[超悦机场官网注册入口](https://a.ggddxx.com/?s=chaoyue)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ---
 
@@ -414,9 +414,9 @@ Hysteria 是一种基于现代网络传输优化设计的协议方案，在部�
 
 超悦机场官方注册入口：
 
-[超悦机场官方注册入口](https://a.wwaann.com/?s=chaoyue)
+[超悦机场官方注册入口](https://a.ggddxx.com/?s=chaoyue)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 使用提示：
 
